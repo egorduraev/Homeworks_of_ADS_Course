@@ -1,1 +1,0 @@
-# Homeworks_of_ADS_Course
